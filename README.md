@@ -6,4 +6,6 @@ my main interests are JJBA, Mighty Nein/Critical Role, D&D, music, art, and ocs.
 
 quick rundown of my DNI, 
 
-Basic DNI(sexism/racism,LGBTphobics, proshippers, darkshippers), stereotypes of gay/lesbain people or countrys, POC people and so on (this inculds the whole CH fandom). fetishizing MLM/FLM/NLM/NLF/NLN, Fushijos, 'MLM = YAOIII' interact with caution. 'dark humour'(Pedophilia, incest, rape, sa, sexual abuse) ex friends, and unnecessary ship arguments(LEGAL.) AI of any sort, 'pro-para' anyone who mentions a type of kink on safe server on their profile or publicly. sexual jokes from strangers, and finally hates on media for no actaul good reason (you can dislike media, but hating and insulting a normal media is just dumb)
+Basic DNI(sexism/racism,LGBTphobics, proshippers, darkshippers, i will also block you if you try excuse proshippers or darkshippers. 'coping' excuses will also be blocked), 
+
+stereotypes of gay/lesbain people or countrys, POC people and so on (this inculds the whole CH fandom). fetishizing MLM/FLM/NLM/NLF/NLN, Fushijos, 'MLM = YAOIII' interact with caution. 'dark humour'(Pedophilia, incest, rape, sa, sexual abuse) ex friends, and unnecessary ship arguments(LEGAL.) AI of any sort, 'pro-para' anyone who mentions a type of kink on safe server on their profile or publicly. sexual jokes from strangers, and finally hates on media for no actaul good reason (you can dislike media, but hating and insulting a normal media is just dumb)
