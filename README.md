@@ -7,3 +7,5 @@ I'm usaully at bakery, C+H, inspiration all good. Just don't be a weirdo and I'l
 basic DNI, proshippers and homophobics or anything agianst a part of the LGBTQ+, racism, misogyny, saying sexual things in public?? its safe server comn bro. sexualization of LGBTQ+ (Fushijos blahblah), AI (AI bots too gang)
 
 since I'm in the UK the social media ban will effect me if its in spring I will be unactive for 6 months next year 😬😬😬
+
+quick side note @VICIOUS-MAUKERY is my other account but I can't be bothered to update it 
