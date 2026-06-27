@@ -1,4 +1,4 @@
-yadayadayada college student in the UK, I like designing characters, fashion and drawing. I know a bunch of fandoms but usaully get Hyperfixed on one at a time, uhhh i like collecting JJBA manga, porcelain dolls, crystals, tarot cards and D&D dices
+yadayadayada college student in the UK, I like designing characters, fashion and drawing. I know a bunch of fandoms but usaully get hyperfixed on one at a time, uhhh i like collecting JJBA manga, porcelain dolls, crystals, tarot cards and D&D dices
 
 
 I'm usaully at bakery, C+H, inspiration all good. Just don't be a weirdo and I'll respect you, freely blocks people I have like a 30 page hiding list its SO bad
