@@ -1,4 +1,4 @@
-👋👋 british college student in UK, please call me Joseph or whatever name I end up with uhhh I don't respect weirdos, uuumh if your a proshipper or something I'll automatically block you, I wont say my dnis, but I will just straight up not respect you if you're in it, THOUGH I will say AI users of any kind, "art", chat bots weird me the fuck out bro 😭😭🙏🙏 don't even come near me I will mock you, also I will respect yumes and fictonsexuals..but I do find it weird. I'm usually at bakery but might start hanging at the JJBA area not sure
+👋👋 british college student in UK, please call me Joseph or whatever name I end up with uhhh I don't respect weirdos, uuumh if your a proshipper or something I'll automatically block you, I wont say my dnis, but I will just straight up not respect you if you're in it, THOUGH I will say AI users of any kind, "art", chat bots weird me the fuck out bro 😭😭🙏🙏 don't even come near me I will mock you, also I will respect yumes and fictonsexuals..but its really not my thing. I'm usually at bakery but might start hanging at the JJBA area not sure
 
 uhh i like character designing, music, art, collecting porcelain dolls and stuff
 
