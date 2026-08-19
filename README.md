@@ -6,3 +6,5 @@ uhmh hello my name is Jose and I've been on ponytown since 2021, I'm 99% sure im
 DNI if you're T.R.A.S.H, proshipper/darkshipper, -12, 20+ , stereotyper of anything
 
 -don't make sexual jokes towards me unless I have given you permission or we're close-
+
+-if I'm cosplaying a character you yumeship with, please dont mention it, it's awkward for me due to trauma i suppose?-
