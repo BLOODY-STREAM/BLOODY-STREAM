@@ -7,4 +7,4 @@ DNI if you're T.R.A.S.H, proshipper/darkshipper, -12, 20+ , stereotyper of anyth
 
 -don't make sexual jokes towards me unless I have given you permission or we're close-
 
--if I'm cosplaying a character you yumeship with, please dont mention it, it's awkward for me due to trauma i suppose?-
+-if I'm cosplaying a character you yumeship with, please dont mention it, it's awkward for me-
