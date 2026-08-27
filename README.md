@@ -9,4 +9,4 @@ DNI if you're T.R.A.S.H, proshipper/darkshipper, -12, 20+ , stereotyper of anyth
 
 -if I'm cosplaying a character you yumeship with, please dont mention it, it's awkward for me-
 
--some media I like is not for people under -16/-18 so I usaully will not mention them if you're not a close friend-
+-some media I like is not for people under -16/-18 so I will not mention them if you're not a close friend-
